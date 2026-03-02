@@ -1,4 +1,4 @@
-## Hey there! 👋
+## Hey there! 🗣️
 
 I'm Douglas, a software engineer based in Brazil.
 
